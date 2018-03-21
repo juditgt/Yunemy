@@ -2,17 +2,17 @@
 
 ![alt text](/images/mug-cake-bizcocho-microondas.jpg)
 
-- Ingredientes:
+- Ingredientes (2 personas):
 
-  *  1 taza grande
-  *  4 cucharadas de harina
-  *  4 cucharadas de azúcar
-  *  2 cucharadas de cacao
-  *  1 huevo grande
-  *  3 cucharadas de leche
-  *  3 cucharadas de aceite
-  *  1/4 de taza de trocitos de chocolate (más algunos extras para distribuir en la parte superior cuando sale del microondas). Si os gusta encontrar chocolate derretido dentro podéis abusar más y poner los trozos más grandes, incluso podéis poner trocitos de caramelo tipo toffee, eso sí cuidado no os queméis al comerlo derretido.
-    un chorro pequeño de extracto de vainilla
+  *  2 taza grande
+  *  8 cucharadas de harina
+  *  8 cucharadas de azúcar
+  *  4 cucharadas de cacao
+  *  2 huevo grande
+  *  6 cucharadas de leche
+  *  6 cucharadas de aceite
+  *  1/2 de taza de trocitos de chocolate (más algunos extras para distribuir en la parte superior cuando sale del microondas). Si os gusta encontrar chocolate derretido dentro podéis abusar más y poner los trozos más grandes, incluso podéis poner trocitos de caramelo tipo toffee, eso sí cuidado no os queméis al comerlo derretido.
+    un chorro pequeño de extracto de vainilla y canela
 
 ## Cómo hacer el bizcocho microondas o Mug cake en 3 minutos:
 
