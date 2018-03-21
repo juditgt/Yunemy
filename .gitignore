@@ -1,0 +1,8 @@
+
+*.md-base
+
+README\.md-ours
+
+README\.md-theirs
+
+README\.md\.orig
