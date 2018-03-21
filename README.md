@@ -12,7 +12,7 @@
   *  3 cucharadas de leche
   *  3 cucharadas de aceite
   *  1/4 de taza de trocitos de chocolate (más algunos extras para distribuir en la parte superior cuando sale del microondas). Si os gusta encontrar chocolate derretido dentro podéis abusar más y poner los trozos más grandes, incluso podéis poner trocitos de caramelo tipo toffee, eso sí cuidado no os queméis al comerlo derretido.
-    un chorro pequeño de extracto de vainilla
+    un chorro pequeño de extracto de canela
 
 ## Cómo hacer el bizcocho microondas o Mug cake en 3 minutos:
 
